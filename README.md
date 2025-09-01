@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...linux 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...@bonzelly.bsky.social
+- 📫 How to reach me ..
 - 😄 Pronouns: ...He/him 
 - ⚡ Fun fact: ...love Tabletop games
 
